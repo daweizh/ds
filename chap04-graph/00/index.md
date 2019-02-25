@@ -38,3 +38,24 @@
 
 ![](img/graph-19.jpg)
 
+![](img/graph-20.jpg)
+
+![](img/graph-21.jpg)
+
+![](img/graph-22.jpg)
+
+![](img/graph-23.jpg)
+
+![](img/graph-24.jpg)
+
+![](img/graph-25.jpg)
+
+![](img/graph-26.jpg)
+
+![](img/graph-27.jpg)
+
+![](img/graph-28.jpg)
+
+![](img/graph-29.jpg)
+
+![](img/graph-30.jpg)
